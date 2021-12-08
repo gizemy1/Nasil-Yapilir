@@ -1,1 +1,0 @@
-# Nasil-Yapilir
